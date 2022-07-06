@@ -1,2 +1,0 @@
-# WinFrie3ndsGithub
-Jdjfgsdfhjgdsfjhsdgfhjsdgfdjshfgdsjhfgdsjhfgsdfhjsdgfjudsgfdjusfgdsjhfgdshfgdshfjgdsjfhsgdfkhsdgfkusdkugf
